@@ -25,3 +25,5 @@
 [INTERNSHIP TASK LOGA DESIGN MOCKUP](https://search.brave.com/search?q=INTERNSHIP%20TASK%20LOGA%20DESIGN%20MOCKUP&summary=1&conversation=b7e2a32c9efb48fdf0c47c&spellcheck=0&source=alteredQueryOriginal)
 ![Screenshot 2024-12-26 005444](https://github.com/user-attachments/assets/770c640a-4d51-4ed8-a205-4b7bf76d8c40)
 ![Screenshot 2024-12-26 011455](https://github.com/user-attachments/assets/0421d4d9-b59e-4c72-903c-8f70083a72fa)
+
+# OUTPUT OF THE 3 TASK 
