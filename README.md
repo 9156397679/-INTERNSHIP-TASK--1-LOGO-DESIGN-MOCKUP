@@ -26,4 +26,10 @@
 ![Screenshot 2024-12-26 005444](https://github.com/user-attachments/assets/770c640a-4d51-4ed8-a205-4b7bf76d8c40)
 ![Screenshot 2024-12-26 011455](https://github.com/user-attachments/assets/0421d4d9-b59e-4c72-903c-8f70083a72fa)
 
-# OUTPUT OF THE 3 TASK 
+# OUTPUT OF THE 3 TASK
+
+![light-blue-color-polo-tshirt-from-full-back-side](https://github.com/user-attachments/assets/3870e2de-e27c-40f2-86f1-8bc82b0d2c2e)
+
+# OUTPUT OF THE 4 TASK
+
+
