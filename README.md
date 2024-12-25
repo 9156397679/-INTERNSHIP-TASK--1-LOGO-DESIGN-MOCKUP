@@ -32,4 +32,7 @@
 
 # OUTPUT OF THE 4 TASK
 
+![Screenshot 2024-12-26 013833](https://github.com/user-attachments/assets/6ce907b0-2aec-4b1f-9e87-d17cfe2cbb2c)
+
+
 
